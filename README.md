@@ -1,3 +1,3 @@
 # Repo 1
 ## Repository push success
-## PUSH IT LIKE A PRO 💪🚀🚀
+## PUSH  LIKE A PRO 💪🚀🚀
